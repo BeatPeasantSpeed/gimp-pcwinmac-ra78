@@ -1,4 +1,4 @@
-# 
+# Top GIMP filtros para Mac OS | Instantâneo GIMP filtros para PC Windows. Com linha do tempo de animação e camada vetorial — otimizado para máximo desempenho em cada plataforma.
 
 
 
